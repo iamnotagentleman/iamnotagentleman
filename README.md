@@ -1,5 +1,4 @@
-### Hi there 👋
-
+### Full-Time Backend Developer/Part-time SJW Hunter
 <!--
 **iamnotagentleman/iamnotagentleman** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
