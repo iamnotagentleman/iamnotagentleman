@@ -1,4 +1,4 @@
-### Full-Time Troll/Part-time SJW Hunter
+### Hi 👋 
 <!--
 **iamnotagentleman/iamnotagentleman** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
